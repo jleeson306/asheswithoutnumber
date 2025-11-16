@@ -1,6 +1,4 @@
 ---
-title: Welcome to Ashes Without Number
+title: JLeeson RPG Wikis
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This is the wiki for Ashes Without Number being run by jleeson. This wiki will contain information on factions, locations, and other stuff with time. 
