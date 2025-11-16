@@ -1,0 +1,5 @@
+	 - Ashen Beasts
+		 - Extorsion
+		 - Excellent gear and weapons
+		 - Recently got a lot of loot they can't use
+		 - Make inroads with a new type of crime

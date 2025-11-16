@@ -1,0 +1,5 @@
+		 - Smuggling
+		 - Familial
+		 - Locals actually support them
+		 - Recently a gang lieutenant turned traitor
+		 - Resolve leadership conflict

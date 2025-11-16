@@ -1,0 +1,5 @@
+		- Drug Production
+		- Degenerate
+		- They have a monopoly
+		- A splinter group broke off recently
+		- Goal is to crush a bothersome local resister
