@@ -1,9 +1,0 @@
-
-## Notes
-- 
-
-## Questions
-- 
-
-## Related links
-- 
