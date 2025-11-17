@@ -1,0 +1,1 @@
+Obsidian is losing the folder unless I have this her I guess?

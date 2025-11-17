@@ -1,4 +1,4 @@
-[[World basics]] for most of the stuff, this is after
+[[Generic Content]] for most of the stuff, this is after
 
 Post the cyber rebellion the governments of North America merged together to attempt to hold on to some semblance of power, forming the United Northern Forces or UNF. It is said they tried to begin exerting authority over some of the previously ruled cities but were crushed by the powerful corporations.
 
