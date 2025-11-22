@@ -1,1 +1,1 @@
-World map of Mapania
+World map of Mapania![](../Images/dfMap.png)
