@@ -1,0 +1,1 @@
+I wasting like 1 hour trying to get a fucking image to show up here lamo fucking gotem
